@@ -11,12 +11,11 @@ Me interesa poder graduarme y cumplir todos mis objetivos y estoy siempre buscan
 ## Proyectos a fututo
 
 Aquí hay algunos de mis proyectos a futuros:
-
 - [GRADUARME] (https://img.freepik.com/foto-gratis/joven-uniforme-graduado-sosteniendo-botella-pildoras-mostrando-pulgar-arriba-mirando-feliz-vista-frontal_176474-57900.jpg): Mi mayor anhelo darle ese orgullo a mis padres.
 
 - [TENER MI PROPIA EMPRESA] (https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQflg4v5JrbBmv4-X4YM9KGkWmRyZV75uTlBM0uXz12&s): Poder crear mi empresa y así tener más ingreso y dar trabajos a personas que necesitan.
 
-- [ESPECIALIZARTE EN CONSULTORÍA Y MANTENIMIENTO TECNOLÓGICO PARA GRANDES EMPRESAS.](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQLH7GPv1tBiaHolR4y5LrU__P0OWmJSA15hGGwH6TD&s): Poder compartir los conocimientos.
+- [ESPECIALIZARTE EN CONSULTORÍA Y MANTENIMIENTO TECNOLÓGICO PARA GRANDES EMPRESAS](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQLH7GPv1tBiaHolR4y5LrU__P0OWmJSA15hGGwH6TD&s): Poder compartir los conocimientos.
 
 ## Contacto
 
